@@ -1,0 +1,6 @@
+- 👋 Hi, I’m amirali niazi
+- 👀 I’m interested in ai, website's
+- 🌱 I’m currently learning js
+- 💞️ I’m looking to collaborate on discord
+- 📫 How to reach me discord server tech-with-the-unkownguy
+- ⚡ Fun fact: i just moved to canada🖤
