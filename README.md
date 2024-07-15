@@ -1,6 +1,1 @@
-- 👋 Hi, I’m amirali niazi
-- 👀 I’m interested in ai, website's
-- 🌱 I’m currently learning js
-- 💞️ I’m looking to collaborate on discord
-- 📫 How to reach me discord server tech-with-the-unkownguy
-- ⚡ Fun fact: i just moved to canada🖤
+im inknown ur best friend in godot tutorials! go che my youtube for more info, leave a sub while at it! https://www.youtube.com/@tech_with_unknown
